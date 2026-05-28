@@ -1,4 +1,4 @@
-# Petition for Consideration: Ramandeep Kaur ⚖️
+# Petition for Consideration: Ramandeep Kaur 
 
 Welcome to my **LegalZoom Internship Application Portal**!
 
